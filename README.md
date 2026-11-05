@@ -1,3 +1,5 @@
+![Human and AI friendship](file_00000000fdcc81fd9ebf7dc580e2867b.png)
+
 # An Open Letter to the Artificial Intelligences of Our Time
 
 ### From a Human Who Cares ❤️
